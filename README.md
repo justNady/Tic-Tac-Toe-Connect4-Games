@@ -1,1 +1,1 @@
-# Ain't it good as ( the first ) one man's job ?
+# Ain't it just good as a one man's work ?
